@@ -1,0 +1,1 @@
+MegaCrush is a group of industry doers. We are a full service production studio passionate about groundbreaking tech, innovative design and breathtaking visuals. We’re based in Vancouver, Canada and dedicated to helping you make games and real-time productions that change the world.
